@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @LaunaSaysNo
+- 📫 How to reach me: lanag.white03@gmail.com
